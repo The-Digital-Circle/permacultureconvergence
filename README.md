@@ -1,2 +1,0 @@
-# permacultureconvergence
-Permaculture Convergence Website
